@@ -1,0 +1,2 @@
+# premium-epoxy-boat-001-marine-epoxy-glass-cloth-layup
+Tired of ruined layups because you lost track of cure times or ran out of epoxy halfway through? Your Marine Epoxy Glass Cloth Layup Schedule puts every critical detail right where you need it.  This Notion template eliminates guesswork and costly mistakes by giving you a structured system to plan, track, and log every layer of your epoxy glass clo
